@@ -1,9 +1,17 @@
 ![ MELHORES MENINAS DOS ANIMES!]![image](https://github.com/joaoreidelas124/joaoreidelas124/assets/144059491/bf6ab0e4-5e6d-4a54-af03-de7aa71b00fb)
 
 
-![ 1 lugar ]Yor Forger (Spy X Family)
+![ 1 lugar ]Kaguya Shinomiya (Kaguya-sama: Love is War)
 
-!![image](https://github.com/joaoreidelas124/joaoreidelas124/assets/144059491/635766c2-6e6f-4ff9-950d-fb147b6844ac)
+![cute-kaguya](https://github.com/joaoreidelas124/joaoreidelas124/assets/144059491/fd07cadc-1795-41f7-a946-6b7247731b02)
+
+Ela se mostra fria no começo mas ao decorrer vai demonstando seu lado fofo.
+
+
+
+![ 2 lugar ]Yor Forger (Spy X Family)
+
+![yor-forger-gif](https://github.com/joaoreidelas124/joaoreidelas124/assets/144059491/460474e3-d3d0-444a-b05f-e196252aeac5)
 
 
 "minha opnião"-Simplesmente uma das melhores waifus dos animes junto da segunda melhor waifu, disparadas as melhores facil, me cativa a personalidade dela fofa mas fria  e sua preocupação com sua familia é muito fofo.
@@ -15,6 +23,8 @@ Apesar de suas habilidades assassinas, ela tem lados que a tornam simpática, co
 ![ 2 lugar ]Marin Kitagawa (My Dress-Up Darling)
 
 ![image](https://github.com/joaoreidelas124/joaoreidelas124/assets/144059491/92d91f16-dc71-4d3e-b316-d4f418fdcd74)
+
+![kitagawa-marin](https://github.com/joaoreidelas124/joaoreidelas124/assets/144059491/234f8c71-aab1-45c0-afd9-7b4424ba99f5)
 
 
 Marin Kitagawa é uma alegre estudante do ensino médio e cosplayer. Ela é popular, fofa e tão perfeita quanto qualquer outra garota de anime.
