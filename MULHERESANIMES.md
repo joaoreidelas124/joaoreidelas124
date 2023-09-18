@@ -30,7 +30,7 @@ Marin Kitagawa é uma alegre estudante do ensino médio e cosplayer. Ela é popu
 
 O que a coloca no topo da nossa lista de garotas fofas de anime é sua atitude despreocupada e a maneira como ela acredita em Gojo e em seu artesanato. Ela também é bastante desajeitada, o que a torna ainda mais fofa de uma forma única.
 
-![ 3 lugar ]Mai Sakurajima (Rascal Does Not Dream of Bunny Girl Senpai)
+![ 4 lugar ]Mai Sakurajima (Rascal Does Not Dream of Bunny Girl Senpai)
 
 ![image](https://github.com/joaoreidelas124/joaoreidelas124/assets/144059491/a3ab4fe9-f7d0-48b4-b3c0-11fbd9d68b79)
 
