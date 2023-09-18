@@ -5,9 +5,7 @@
 
 ![cute-kaguya](https://github.com/joaoreidelas124/joaoreidelas124/assets/144059491/fd07cadc-1795-41f7-a946-6b7247731b02)
 
-Ela se mostra fria no começo mas ao decorrer vai demonstando seu lado fofo.
-
-
+"minha opnião"-Simplesmente uma das melhores waifus dos animes junto da segunda melhor waifu, disparadas as melhores facil, me cativa a personalidade dela fofa mas fria  e sua preocupação com sua familia é muito fofo.
 
 ![ 2 lugar ]Yor Forger (Spy X Family)
 
@@ -20,7 +18,8 @@ Ela se mostra fria no começo mas ao decorrer vai demonstando seu lado fofo.
   Pode parecer apenas uma garota normal com um trabalho normal como escriturária na prefeitura, mas ela é uma assassina durona que esconde sua identidade se misturando à comunidade Ela está dentro.
 Apesar de suas habilidades assassinas, ela tem lados que a tornam simpática, como a maneira como ela pensa em matar como a única maneira de resolver problemas mundanos (de uma forma cômica). A propósito, ela é casada com Loid Forger, um espião.
 
-![ 2 lugar ]Marin Kitagawa (My Dress-Up Darling)
+![ 3
+lugar ]Marin Kitagawa (My Dress-Up Darling)
 
 ![image](https://github.com/joaoreidelas124/joaoreidelas124/assets/144059491/92d91f16-dc71-4d3e-b316-d4f418fdcd74)
 
